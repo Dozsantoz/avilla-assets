@@ -1,13 +1,15 @@
 # Casa Nobre — Taubaté
 
-168m² de acabamento que fala por si.
+Planejados de alto padrão em todos os cômodos.
 
 Casa térrea em condomínio fechado.
-3 suítes. Escritório. Área gourmet com churrasqueira.
-Armários planejados em todos os ambientes.
+4 suítes, sendo 1 escritório com suíte reversível.
+Marcenaria de alto padrão em todos os ambientes.
 Eletrodomésticos Electrolux embutidos.
+Box e espelhos em todos os banheiros.
+Despensa planejada.
 Porcelanato do chão ao teto.
-Forro com sancas iluminadas na casa toda.
+Área gourmet com churrasqueira e bancada.
 
 Pronta pra morar — você só traz a mala.
 
@@ -19,7 +21,7 @@ Pronta pra morar — você só traz a mala.
 ◆ Aceita financiamento
 ◆ Documentação em ordem
 
-Felipe Avilla — CRECI 162765
-📲 (12) 99109-9700 · (12) 99227-1231
+Felipe Avilla — CRECI 53652-J
+📲 (12) 99227-1231
 
 #imoveis #imoveistaubate #casaavenda #altopadrao #condominiosfechados #casaterrea #imoveisdeluxo #taubate #valedoparaiba #corretordeimoveis #imobiliaria #investimentoimobiliario #casapronta #decoracao #arquitetura
